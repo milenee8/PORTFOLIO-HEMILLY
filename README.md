@@ -23,17 +23,8 @@ Desde cedo, me interessei pelo cuidado das crianças e pela importância de uma 
 - Ingressar em uma **faculdade de Medicina**, com especialização em **Pediatria**.
 - Contribuir para o desenvolvimento de novos conhecimentos e cuidados na área da Pediatria.
 
-## 🔗 Vamos nos conectar!
-
-Você pode me acompanhar nas redes sociais para ver o que estou aprendendo e meus próximos passos rumo à faculdade de Pediatria:
-
-- **Instagram**: (https://www.instagram.com/seu_usuario/)
-
-## 🚀 Vamos aprender juntos!
-
 Se você também é estudante, ou se já é um profissional da área da saúde, estou aberto a aprender e trocar experiências. Sinta-se à vontade para contribuir com sugestões ou ideias! Juntos podemos construir um futuro mais saudável para as crianças.
 
----
 
 **Nota:** Ainda estou no início da minha jornada, mas estou comprometido em estudar e compartilhar o conhecimento que estou adquirindo ao longo do caminho.
 
